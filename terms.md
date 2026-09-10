@@ -1,4 +1,4 @@
-# Terms and Conditions
+# FidelTiktok54 Terms and Conditions
 
 Last updated: August 27, 2026
 
