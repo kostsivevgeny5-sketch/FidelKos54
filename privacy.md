@@ -1,4 +1,4 @@
-tiktok-developers-site-verification=Aan2PBJt9PPh9uoOmy3YMC9HjDUMNSbb
+Aan2PBJt9PPh9uoOmy3YMC9HjDUMNSbb
 # FidelKos54 Privacy Policy
 
 Last updated: August 27, 2026
